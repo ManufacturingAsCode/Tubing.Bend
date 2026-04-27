@@ -1,0 +1,5 @@
+- [HYDRO FORMING (Copper coils ) using water, how to bend tight coils of tubing](https://youtu.be/P6LrTAQyvb0)
+- [Trying water instead of sand to form a copper coil for water heater](https://youtu.be/73gVgx6uf_c)
+- [Make Extreamly tight bends in stainless steel or copper tubing using frozen soap water](https://youtu.be/EU9OKkgi6Jg)
+- [DIY Pipe Bender-Coil Machine, Because...](https://youtu.be/9CsEXz_Yh30)
+- [Advanced tubing coiling method or bending tight bends](https://youtu.be/072B4gta9p8)
